@@ -1,1 +1,1 @@
-# KARE
+https://www.notion.so/yessen/67390347f5504a58a9996d04ad08ec08?v=63c3730991ec4c8db31387c8129881ed
